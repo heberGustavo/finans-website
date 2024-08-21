@@ -2,4 +2,4 @@
 
 URL: https://hebergustavo.github.io/finans-website/
 
-![image](https://github.com/user-attachments/assets/38ee011c-8734-4ef2-ae35-d2b383d4c313)
+![screenshot-hebergustavo github io-2024 08 21-08_06_37](https://github.com/user-attachments/assets/a0a04827-dd55-4d98-96f2-148af7451bc1)
